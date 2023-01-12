@@ -1,0 +1,1 @@
+# Anim Mouse's default community health files
